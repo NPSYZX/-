@@ -1,1 +1,1 @@
-# -
+# way to study
